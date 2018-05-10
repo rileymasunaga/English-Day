@@ -1,0 +1,32 @@
+
+# English Day #7 Notes
+- **Tardy** | adjective (tardier, tardiest)
+	- delaying or delayed beyond the right or expected time; late: please forgive this tardy reply.
+- **Word of Mouth** | ｟強勢移動｠ 
+	- 口コミの
+- **Fluffy** | Adjetive
+	- of, like, or covered with fluff: a fluffy towel | fluffy white clouds.
+	- (of food) light in texture and containing air: cream the butter and sugar until pale and fluffy.
+	- ふわふわした; 綿毛の, 綿毛で覆われた.
+	- 〈食べ物･雲などが〉ふんわりした.
+- **Crinkle** | krɪ́ŋk(ə)l | Verb
+	- [with object]() cause (something) to make a crackling or rustling sound: we tried hard not to crinkle the plastic as we unwrapped the pies.
+	- 〈紙などが〉カサカサと音を立てる.
+- **Faux** | Adjective
+	- made in imitation; artificial: a string of faux pearls | a faux-fur jacket.
+	- 人工の, 模造の, 偽の.
+- Do you use this **type of** product? 
+- Do you use this **specific** product?
+- **Bulky** | adjective (bulkier, bulkiest)
+	- taking up much space, typically inconveniently; large and unwieldy: a bulky piece of luggage | a bulky sweater.
+	- 1 〈物が〉大きい, でかい, 重い; (かさばって)扱いにくい; 〈衣服が〉ゆったりした, 厚手の.
+	- 2 〈人･図体が〉大柄な, がっしりした.
+- **Foam** | Noun
+	- フォームラバー, 気泡ゴム(foam rubber).
+- **Cabinet** | Noun
+	- (飾り)戸棚, 陳列棚, 保管庫, 整理棚 (→ bathroom ); (テレビなどの収納用)キャビネット
+- **To Second Guess.**
+	- judge or criticize (someone) with hindsight
+	- 1 〈事態･行動〉を予測[予想]()する.
+	- 2 事が起こった後で[後知恵で]()…を批判する.
+
