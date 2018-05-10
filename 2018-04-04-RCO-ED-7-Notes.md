@@ -4,7 +4,7 @@
 	- delaying or delayed beyond the right or expected time; late: please forgive this tardy reply.
 - **Word of Mouth** | ｟強勢移動｠ 
 	- 口コミの
-- **Fluffy** | Adjetive
+- **Fluffy** | Adjective
 	- of, like, or covered with fluff: a fluffy towel | fluffy white clouds.
 	- (of food) light in texture and containing air: cream the butter and sugar until pale and fluffy.
 	- ふわふわした; 綿毛の, 綿毛で覆われた.
